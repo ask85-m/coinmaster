@@ -1,4 +1,4 @@
-# coinmaster
+# coinmasterhackcheat
 coin master is a famous game in internet. It is a very interesting game to play. Everyone should play coin master.
 When you ask someone about his favourite game he will tell it is coin master. AS it has gain undoutedly popularity in avery short time. So if you have not play coin master in a while you should play it,
 So, my projest was about being a pro in the game. How are you going to be a pro in coin. You need unlimited free spins and cheats to get famous and popularity.
